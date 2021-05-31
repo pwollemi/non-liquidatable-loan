@@ -1,0 +1,1 @@
+Non Liquidatable Defi Protocol
